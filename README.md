@@ -1,3 +1,1 @@
-![wallhaven-kw5586](https://github.com/alem1105/alem1105/assets/48867964/de6f3036-1d77-47f5-8cee-ac0795256a34)
-
-
+![gojo-gojo-high-ezgif com-crop](https://github.com/user-attachments/assets/cde04628-1883-42ad-b6d7-a55b63dd2c72)
